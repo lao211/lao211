@@ -1,2 +1,1 @@
-
-![ы](https://github.com/user-attachments/assets/c33f6deb-6f25-4ba7-b789-a83b86d8f46b)
+![RDdha9Y](https://github.com/user-attachments/assets/931beba5-5e34-4be6-8e14-f122af1287a1)
